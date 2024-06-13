@@ -14,7 +14,7 @@
 ## 今日热门搜索
 
 <!-- BEGIN -->
-<!-- 最后更新时间 Thu Jun 13 2024 18:20:56 GMT+0800 (China Standard Time) -->
+<!-- 最后更新时间 Thu Jun 13 2024 19:17:25 GMT+0800 (China Standard Time) -->
 
 1. [习近平为何说这是我们的宝贝](https://s.weibo.com//weibo?q=%23%E4%B9%A0%E8%BF%91%E5%B9%B3%E4%B8%BA%E4%BD%95%E8%AF%B4%E8%BF%99%E6%98%AF%E6%88%91%E4%BB%AC%E7%9A%84%E5%AE%9D%E8%B4%9D%23&Refer=new_time)
 1. [中专女生爆冷拿下数学竞赛全球12名](https://s.weibo.com//weibo?q=%23%E4%B8%AD%E4%B8%93%E5%A5%B3%E7%94%9F%E7%88%86%E5%86%B7%E6%8B%BF%E4%B8%8B%E6%95%B0%E5%AD%A6%E7%AB%9E%E8%B5%9B%E5%85%A8%E7%90%8312%E5%90%8D%23&t=31&band_rank=9&Refer=top)
